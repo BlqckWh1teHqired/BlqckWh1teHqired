@@ -1,7 +1,5 @@
 # 『 Wαηηα ριqγ ωıтн мє? 』- Kyusaku Yumeno
-<p align="center">
-  <img width="980" height="980" src="https://i.pinimg.com/1200x/b8/65/67/b8656774588ddb79ae77af8b513b88fb.jpg" />
+<p align="center"/>
+  <img width="2412" height="1900" alt="I love Kyusaku Yumeno smsmmsms" src="https://github.com/user-attachments/assets/4c65beb3-3581-435d-8a81-fffa18f15af4" />
 </p>
-
-### !! Read my Patreon !!
-STILL A WIP URPEURPERHERERUEPRHERPHE
+### !! Read my Patreon !! // When i ask AI to remove bg 💔💔
